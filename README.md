@@ -1,2 +1,2 @@
-# Click-Cursor-Roblox
-A Cursor Designed For The 2013-2021 Themed Cursor
+## What is Click-Cursor-Roblox
+This cursor is Completely virus free FEEL FREE TO DOWNLOAD!!!!
